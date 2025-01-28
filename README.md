@@ -32,11 +32,3 @@
 ‼️ **Important Notes:**
 - You must keep the extension active for **approximately 24 hours** to obtain a referral code.
 - If you have a referral code, **please comment below** to share with the community!
-
----
-## 🇻🇳 Happy New Year 2025 🇻🇳
-🧧 May the **Year of the Snake** bring you **luck and prosperity**!
-🔥 **Uptrend explosion, multiplying your account many times over!**
-
-🎉 Wishing everyone a **prosperous and successful year ahead!** 🥂🎊
-
